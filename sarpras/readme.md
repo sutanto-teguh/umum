@@ -7,5 +7,5 @@
 5. [std Sarpras ITS 2017](https://www.its.ac.id/tgeomatika/wp-content/uploads/sites/32/2020/09/6.-Standar-Sarana-dan-Prasarana-Pembelajaran.pdf)
 
 ### PENGELOLAAN LAB
-1. [PER.REK PENGELOLAAN LABORATORIUM DI LINGKUNGAN INSTITUT TEKNOLOGI SEPULUH NOPEMBER ] (https://www.its.ac.id/sdmo/wp-content/uploads/sites/62/2020/04/Peraturan-Rektor-ITS-No-13-Tahun-2020-Tentang-Pengelolaan-Laboratorium.pdf)
+1. [PER.REK PENGELOLAAN LABORATORIUM DI LINGKUNGAN INSTITUT TEKNOLOGI SEPULUH NOPEMBER ](https://www.its.ac.id/sdmo/wp-content/uploads/sites/62/2020/04/Peraturan-Rektor-ITS-No-13-Tahun-2020-Tentang-Pengelolaan-Laboratorium.pdf)
 2. [SOPLABORATORIUM KOMPUTASI DEPARTEMEN AKTUARIA FAKULTAS SAINS DAN ANALITIKA DATA INSTITUT TEKNOLOGI SEPULUH NOPEMBER SURABAYA](https://www.its.ac.id/aktuaria/wp-content/uploads/sites/100/2018/03/STANDAR-OPERASIONAL-PROSEDUR-LABORATORIUM.pdf)
