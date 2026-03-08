@@ -194,6 +194,9 @@ Semakin banyak konten
 
 ---
 
+LINK:
+https://lynk.id/alima/ym9m3wokg346
+
 💡 Jika Anda mau, saya bisa lanjutkan ke **strategi yang jauh lebih powerful**, yaitu:
 
 * **30 ide posting Threads yang berpotensi viral untuk jualan kartu Lebaran**
